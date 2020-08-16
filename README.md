@@ -1,0 +1,2 @@
+# thetypicool.com
+thetypicool.com
